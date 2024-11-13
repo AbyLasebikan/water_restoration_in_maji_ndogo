@@ -3,5 +3,5 @@ Maji Ndogo, once a community with abundant water resources, faced a severe water
 
 A comprehensive water survey was conducted throughout Maji Ndogo to assess existing water sources, identify areas of need, and map the community's water consumption patterns. The collected data provided valuable insights into the crisis, enabling informed decision-making and the development of a sustainable water restoration plan.
 
-By leveraging data, Maji Ndogo was able to prioritize water restoration efforts, allocate resources effectively, and ensure that clean water was delivered to the community in the most economical and efficient manner possible.
+By leveraging data, Maji Ndogo was able to prioritize water restoration efforts, allocate resources effectively, and ensure that clean water was restored to the community in the most economical and efficient manner possible.
 
